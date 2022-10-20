@@ -1,0 +1,1 @@
+# ase_man_power_draft_20.10.2022
